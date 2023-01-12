@@ -1,7 +1,7 @@
 # matth3ew.github.io
 Matthew Alfred N. Oliva
 
-LG **CAMPION**
+LG CAMPION
 
 **kung ako yan di kita gaganyanin**
 
